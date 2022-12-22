@@ -12,5 +12,5 @@ Socials
 - [Telegram](https://t.me/dolphinllama)
 - [Steam](https://steamcommunity.com/profiles/76561198138270776/)
 - [Twitch](https://www.twitch.tv/utyhugf)
-- [DeviantArt](deviantart.com/utyhugf)
+- [DeviantArt](https://www.deviantart.com/utyhugf)
 - ⚠️Adult content⚠️ [FurAffinity](https://www.furaffinity.net/user/naturefetch/)
